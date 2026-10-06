@@ -1,0 +1,1 @@
+# ru_publishing_1c_minimoney
